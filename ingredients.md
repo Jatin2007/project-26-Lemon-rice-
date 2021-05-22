@@ -1,0 +1,1 @@
+1 cup of rice, 1 table spoon oil, 1/4 spoon of mustard seeds, 1/4 cup of Ground nuts,2 chooped green chilli, 1 tea spoon bengal gram, 1 tea spoon (urad dal), 7-8 curd leaves, 2 pinch of termeric powder and salt (according to taste), lemon.
